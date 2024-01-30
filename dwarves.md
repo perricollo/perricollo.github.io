@@ -21,6 +21,7 @@ They can form more permanent relationships based on mutual support and/or popula
 ## \- Fungi, lichen, plants
 
 ## \- Flesh Beasts
+Bad
 
 
 # World
